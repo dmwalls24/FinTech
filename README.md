@@ -1,1 +1,2 @@
 # FinTech
+My name is Dennis Walls Jr. and my professional background is in Accounting. My current career goal is to transition into a finance based role. This FinTech course will help me gain the skills needed to make an impact in my next role.
